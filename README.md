@@ -1,0 +1,2 @@
+# Bendera
+ini bendera Palestina
